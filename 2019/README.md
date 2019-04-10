@@ -13,6 +13,7 @@ Martín Catena, alumno de doctorado en la Facultad de Comunicación y Documentac
 La policía no es capaz de identificar a quién pertenece el miembro extirpado y tampoco se ha recibido ninguna denuncia de agresión violenta, desaparición o crimen en los alrededores. Por ello, se decreta secreto de sumario. La investigación parece quedar en tierra de nadie ante el morbo de todos los estudiantes y profesores del Campus de Cartuja.
 
 Al ver que Mara continúa sin responder a sus mensajes, Catena decide iniciar una investigación por su cuenta, ya que está convencido de que su amiga está en peligro. Así, Catena irá construyendo su propia explicación sobre el incidente.
+
 ========================================
     
 
