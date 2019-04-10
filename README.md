@@ -1,6 +1,6 @@
 # PeriodismoMultimedia19 
 
-Proy1 -  Videojuego
+Proy2 -  Videojuego
 ========================================
 Título: Index
 
