@@ -18,7 +18,7 @@ Al ver que Mara continúa sin responder a sus mensajes, Catena decide iniciar un
     
 
 		[Website]()
-		![Imagen](https://raw.githubusercontent.com/dvdcillo/periodismomultimedia/2019/albercon.jpg)
+		![Imagen](2019/Albercon.jpg)
 
 
 
